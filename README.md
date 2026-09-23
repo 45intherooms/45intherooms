@@ -19,6 +19,7 @@ https://45intherooms.straw.page/<br>
   (more info. got carried away w/ the layout so umm enjoy like and sub)
   and for mor ummmm i have a sona i wanna show yall later when i find it
   <br>
+  i also might mispell alot of slangs, lmk or correct me im trying to catch up
 <img src="https://poempuppy.neocities.org/resources/blinkies/6da997923a2ce44c653f7288c70e611faf769c7a.gif">
 </p>
 <p align="center">
