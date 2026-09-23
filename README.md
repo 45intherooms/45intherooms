@@ -14,9 +14,11 @@
 45 (as in name not age!!) or anything's okok
 <p align="center">
 c+h/hanging around is 100% fine.
-<p align="center">
+<p align="center"><br>
 https://45intherooms.straw.page/<br>
-  (more info. got carried away w/ the layout so umm enjoy like and sub)
+ <br>
+ <br> https://45intherooms.atabook.org/
+  <br><br>
   and for mor ummmm i have a sona i wanna show yall later when i find it
   <br>
  i also might mispell alot of slangs, lmk if ur confused or correct me im trying to catch up<br>
