@@ -6,8 +6,6 @@
 
 
 
-
-
 <p align="center">
 <img src="https://poempuppy.neocities.org/resources/pixels/swg08k.gif" width="100">
 <br><img src="https://poempuppy.neocities.org/resources/buttons/IMG_8431.GIF"> <img src="https://poempuppy.neocities.org/resources/buttons/tumblr_5170ee806fccf452f22e93f4d242eceb_c64d1c53_75.webp">
@@ -21,3 +19,6 @@ https://45intherooms.straw.page/<br>
   <br>
 <img src="https://poempuppy.neocities.org/resources/blinkies/6da997923a2ce44c653f7288c70e611faf769c7a.gif">
 </p>
+<p align="center">
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/cc13521e-335e-4498-b76f-5be405fa68da" />
+
