@@ -20,7 +20,7 @@ https://45intherooms.straw.page/<br>
   <br>
  i also might mispell alot of slangs, lmk if ur confused or correct me im trying to catch up<br>
 
-  annnd im not a roleplayer, just clarifying
+  annnd im not a roleplayer, just clarifying<br>
 <img src="https://poempuppy.neocities.org/resources/blinkies/6da997923a2ce44c653f7288c70e611faf769c7a.gif">
 </p>
 <p align="center">
