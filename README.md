@@ -19,9 +19,11 @@ https://45intherooms.straw.page/<br>
   and for mor ummmm i have a sona i wanna show yall later when i find it
   <br>
  i also might mispell alot of slangs, lmk if ur confused or correct me im trying to catch up<br>
-
-  annnd im not a roleplayer, just clarifying<br>
-<img src="https://poempuppy.neocities.org/resources/blinkies/6da997923a2ce44c653f7288c70e611faf769c7a.gif">
+<p align="center">
+  annnd im not a roleplayer, just clarifying
+  <br>
+<p align="center">
+ <img src="https://poempuppy.neocities.org/resources/blinkies/6da997923a2ce44c653f7288c70e611faf769c7a.gif">
 </p>
 <p align="center">
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/cc13521e-335e-4498-b76f-5be405fa68da" />
