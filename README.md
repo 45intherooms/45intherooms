@@ -1,8 +1,5 @@
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/bow/black.png" width="890">
-  <img src="https://pixelsafari.neocities.org/dividers/pastelpinkbow.png" width="700" height="30">
-
-
 
 
 
@@ -22,6 +19,8 @@ https://45intherooms.straw.page/<br>
   and for mor ummmm i have a sona i wanna show yall later when i find it
   <br>
  i also might mispell alot of slangs, lmk if ur confused or correct me im trying to catch up<br>
+
+  annnd im not a roleplayer, just clarifying
 <img src="https://poempuppy.neocities.org/resources/blinkies/6da997923a2ce44c653f7288c70e611faf769c7a.gif">
 </p>
 <p align="center">
