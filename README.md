@@ -1,4 +1,4 @@
-<p align="center">
+w<p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/bow/black.png" width="890">
 
 
@@ -17,10 +17,13 @@ https://45intherooms.straw.page/<br>
  <br> https://45intherooms.atabook.org/
   <br><br>
   and for mor ummmm i have a sona i wanna show yall later when i find it
+
+<br>
+PT INFO !!!
   <br>
  i also might mispell alot of slangs, lmk if ur confused or correct me im trying to catch up<br>
 <p align="center">
-  annnd im not a roleplayer, just clarifying<br>
+  annnd im not a roleplayer, just clarifying<br><br>
  (if i move away from u, i thought im bothering u. nothing personal! )
   <br>
 <p align="center">
