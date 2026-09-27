@@ -19,8 +19,8 @@ https://45intherooms.straw.page/<br>
   and for mor ummmm i have a sona i wanna show yall later when i find it
 
 <br>
-PT INFO !!!
-  <br>
+<p align="center">PT INFO !!!
+  <br><br>
  i also might mispell alot of slangs, lmk if ur confused or correct me im trying to catch up<br>
 <p align="center">
   annnd im not a roleplayer, just clarifying<br><br>
