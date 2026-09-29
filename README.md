@@ -1,6 +1,4 @@
-<p align="center">
-I'm not a roleplayer !!!!!!!!!!!! :cry:
-</p>
+<h3><p align="center">I'm not a roleplayer !!!!!!!!!!!! :cry:</p></h3>
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/bow/black.png" width="890">
