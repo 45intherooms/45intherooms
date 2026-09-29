@@ -1,4 +1,8 @@
-w<p align="center">
+<p align="center">
+I'm not a roleplayer !!!!!!!!!!!! :cry:
+</p>
+
+<p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/bow/black.png" width="890">
 
 
@@ -23,7 +27,6 @@ https://45intherooms.straw.page/<br>
   <br><br>
  i also might mispell alot of slangs, lmk if ur confused or correct me im trying to catch up<br>
 <p align="center">
-  annnd im not a roleplayer, just clarifying<br><br>
  (if i move away from u, i thought im bothering u. nothing personal! )
   <br>
 <p align="center">
