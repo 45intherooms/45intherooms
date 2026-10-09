@@ -16,7 +16,8 @@ c+h/hanging around is 100% fine.
 <p align="center"><br>
 https://45intherooms.straw.page/<br>
  <br>
- <br> https://45intherooms.atabook.org/
+ <br> https://45intherooms.atabook.org/<br><br><br>
+ https://pronouns.cc/@45intherooms
   <br><br>
   and for mor ummmm i have a sona i wanna show yall later when i find it
 
