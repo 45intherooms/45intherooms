@@ -24,10 +24,10 @@ https://45intherooms.straw.page/<br>
 <br>
 <p align="center">PT INFO !!!
   <br><br>
- i also might mispell alot of slangs, lmk if ur confused or correct me im trying to catch up<br>
+I'm not used to using slangs, so i might mispell them. correct me if needed please!<br>
 <p align="center">
  (if i move away from u, i thought im bothering u. nothing personal! )
   <br>
 <p align="center">
- uhuhuke idk what forsaken is sorry /srs
+ I don't know what Forsaken is, sorry /srs
 </p>
