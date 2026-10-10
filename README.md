@@ -28,6 +28,7 @@ I'm not used to using slangs, so i might mispell them. correct me if needed plea
 <p align="center">
  (if i move away from u, i thought im bothering u. nothing personal! )
   <br>
+ my ponies mainly use the 'bothered' expression as default!
 <p align="center">
  I don't know what Forsaken is, sorry /srs
 </p>
