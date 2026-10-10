@@ -31,10 +31,3 @@ https://45intherooms.straw.page/<br>
 <p align="center">
  uhuhuke idk what forsaken is sorry /srs
 </p>
- <br>
-<p align="center">
- <img src="https://poempuppy.neocities.org/resources/blinkies/6da997923a2ce44c653f7288c70e611faf769c7a.gif">
-</p>
-<p align="center">
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/cc13521e-335e-4498-b76f-5be405fa68da" />
-
