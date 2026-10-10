@@ -29,6 +29,10 @@ https://45intherooms.straw.page/<br>
  (if i move away from u, i thought im bothering u. nothing personal! )
   <br>
 <p align="center">
+ uhuhuke idk what forsaken is sorry /srs
+</p>
+ <br>
+<p align="center">
  <img src="https://poempuppy.neocities.org/resources/blinkies/6da997923a2ce44c653f7288c70e611faf769c7a.gif">
 </p>
 <p align="center">
