@@ -14,6 +14,7 @@
 <p align="center">
 c+h/hanging around is 100% fine.
 <p align="center"><br>
+ ( For any important discussions, please ask for my Discord through whispering me if you see me, on my Atabook, etc! )<br><br>
 https://45intherooms.straw.page/<br>
  (updated interests) 10/10/26
  <br>
