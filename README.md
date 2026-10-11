@@ -27,9 +27,11 @@ https://45intherooms.straw.page/<br>
   <br><br>
 I'm not used to using slangs, so i might mispell them. correct me if needed please!<br>
 <p align="center">
- (if i move away from u, i thought im bothering u or i saw a spot i liked. nothing personal! )
+ (if i move away from u, i thought im bothering u or i saw a spot i liked (excluding cuddles/hiding). nothing personal! )
   <br><br>
  my ponies mainly use the 'bothered' or neutral expression as default! its kinda like a style
 <p align="center">
+ i use two main ponies! : D
+ <p align="center">
  I don't know what Forsaken is, sorry /srs
 </p>
