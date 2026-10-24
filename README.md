@@ -13,26 +13,22 @@
 45 (as in name not age!!) or anything's okok
 <p align="center">
 c+h/hanging around is 100% fine.
+ <p align="center">
+  Keeping friend requests/socials for 17-19!!!
 <p align="center"><br>
- ( For any important discussions, please ask for my Discord through whispering me if you see me, on my Atabook, etc! )<br><br>
-https://45intherooms.straw.page/<br>
- (updated interests) 10/10/26
+ ( For any important discussions, please ask for my Discord through whispering me if you see me, or on my Atabook if you need to!)<br>
  <br>
  <br> https://45intherooms.atabook.org/<br><br><br>
- https://pronouns.cc/@45intherooms
-  <br><br>
-  and for mor ummmm i have a sona i wanna show yall later when i find it
 
 <br>
-<p align="center">PT INFO !!!
+<p align="center">PT/OTHER INFO !!!
   <br><br>
-I'm not used to using slangs, so i might mispell them. correct me if needed please!<br>
+ <p align="center">
+I'm not used to using slangs, I may make mistakes. Correct me please!<br>
 <p align="center">
- (if i move away from u, i thought im bothering u or i saw a spot i liked (excluding cuddles/hiding). nothing personal! )
+ If I move away from you, I thought I'm bothering u or i saw a spot i liked (excluding cuddles/hiding). nothing personal!
   <br><br>
  my ponies mainly use the 'bothered' or neutral expression as default! its kinda like a style
-<p align="center">
- i use two main ponies! : D
  <p align="center">
  I don't know what Forsaken is, sorry /srs
 </p>
