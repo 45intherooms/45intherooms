@@ -19,6 +19,8 @@ c+h/hanging around is 100% fine.
  ( For any important discussions, please ask for my Discord through whispering me if you see me, or on my Atabook if you need to!)<br>
  <br>
  <br> https://45intherooms.atabook.org/<br><br><br>
+ <p align="center">
+ come chat + i sign back always !!
 
 <br>
 <p align="center">PT/OTHER INFO !!!
