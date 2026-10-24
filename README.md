@@ -14,7 +14,7 @@
 <p align="center">
 c+h/hanging around is 100% fine.
  <p align="center">
-  Keeping friend requests/socials for 17-19!!!
+  friend requests/socials= 17-19
 <p align="center"><br>
  ( For any important discussions, please ask for my Discord through whispering me if you see me, or on my Atabook if you need to!)<br>
  <br>
