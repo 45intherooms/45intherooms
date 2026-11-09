@@ -3,8 +3,7 @@
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/bow/black.png" width="890">
-
-<img src="(https://poempuppy.neocities.org/resources/stamps/0013.gif)" width="97" height="54">
+<img width="97" height="54" alt="image" src="https://github.com/user-attachments/assets/3fd4ba63-dc92-4cdc-ae8b-99fef87da7a4" />
 
 <p align="center">
 <img src="https://poempuppy.neocities.org/resources/pixels/swg08k.gif" width="100">
