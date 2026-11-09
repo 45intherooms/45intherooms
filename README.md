@@ -4,7 +4,7 @@
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/bow/black.png" width="890">
 
-
+<img src="(https://poempuppy.neocities.org/resources/stamps/0013.gif)" width="97" height="54">
 
 <p align="center">
 <img src="https://poempuppy.neocities.org/resources/pixels/swg08k.gif" width="100">
