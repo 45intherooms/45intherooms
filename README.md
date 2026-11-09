@@ -12,10 +12,10 @@
 
 <p align="center">
  $`{\color{#f5bfeb}\text{im 45 (name), angel or etc '}}`$
+</center>
 <p align="center">
-
  $`{\color{#a17599}\text{feel free to c+h/hang around  '}}`$ <img src="https://poempuppy.neocities.org/resources/pixels/2yvms8.gif"/>
-c+h/hanging around is 100% fine.
+</center>
  <p align="center">
   friend requests/socials= 17-19<br>
   feel free to shoot me a friend request if we met!<br>
