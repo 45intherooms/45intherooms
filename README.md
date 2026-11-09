@@ -14,8 +14,9 @@
 <p align="center">
 c+h/hanging around is 100% fine.
  <p align="center">
-  friend requests/socials= 17-19
-  feel free to shoot me a friend request if we met!
+  friend requests/socials= 17-19<br>
+  feel free to shoot me a friend request if we met!<br>
+ 
 <p align="center"><br>
  ( For any important discussions, please ask for my Discord through whispering me if you see me, or on my Atabook if you need to!)<br>
  <br>
