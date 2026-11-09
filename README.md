@@ -1,4 +1,5 @@
 <h3><p align="center">I'm not a roleplayer!</p></h3>
+<center>I also made this in dark mode.</center>
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/bow/black.png" width="890">
@@ -11,7 +12,6 @@
 
 <p align="center">
  $`{\color{#f5bfeb}\text{im 45 (name), angel or etc '}}`$
-45 (as in name not age!!)/angel or anything's okok
 <p align="center">
 c+h/hanging around is 100% fine.
  <p align="center">
