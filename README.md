@@ -38,7 +38,7 @@
  <p align="center">
 I'm not used to using slangs, I may make mistakes. Correct me please!<br>
 <p align="center">
- If I move away from you, I thought I'm bothering u or i saw a spot i liked (excluding cuddles/hiding). nothing personal!
+ If I move away from you, I thought I'm bothering u or i saw a spot i liked. Nothing personal! (Doesn't count for cuddles/hiding).
   <br><br>
  my ponies mainly use the 'bothered' or neutral expression as default! its kinda like a style
  <p align="center">
