@@ -1,5 +1,6 @@
-<h3><p align="center">I'm not a roleplayer!</p></h3>
-<center>I also made this in dark mode.</center>
+<p align="center"><h3><p align="center">I'm not a roleplayer!</p></h3>
+
+<p align="center">I also made this in dark mode.</p>
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/bow/black.png" width="890"> 
@@ -23,7 +24,7 @@
 <p align="center">
   i also do art trades, please ask me anytime 
 </p>
-<p align="center"><br>
+<p align="center">
  ( For any important discussions, please ask for my Discord through whispering me if you see me, or on my Atabook if you need to!)<br>
  <br>
 <p align="center">
@@ -41,5 +42,7 @@ I'm not used to using slangs, I may make mistakes. Correct me please!<br>
  If I move away from you, I thought I'm bothering u or i saw a spot i liked. Nothing personal! (Doesn't count for cuddles/hiding).
   <br>
  <p align="center">
- I don't know what Forsaken is, sorry /srs
+ I don't know what Forsaken is, sorry /srs<br>
+  <p align="center">
+  ill sometimes forget to update a bit of info anywhere here
 </p>
