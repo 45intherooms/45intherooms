@@ -19,7 +19,7 @@
 </center>
  <p align="center">
   friend requests/socials= 17-19 age range<br> 
-  you can anytime friend me if we met, ! Otherwise.. i really like to make friends, and i love talking about my interests and other stuff.   <br>
+  you can anytime friend me if we met, ! but otherwise i really like to make friends, and i love talking about my interests and other stuff.   <br>
  </p>
 <p align="center">
   i also do art trades, please ask me anytime 
