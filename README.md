@@ -24,9 +24,12 @@
 <p align="center">
   i also do art trades, please ask me anytime 
 </p>
-<p align="center">
- ( For any important discussions, please ask for my Discord through whispering me if you see me, or on my Atabook if you need to!)<br>
- <br>
+<details>
+<summary align="center">my interests</summary>
+
+i really like to study about astronomy, marine-life, pandas, and other topics. i like pastel colors, trinket and stamp collecting, tba..
+
+</details></p>
 <p align="center">
  uhh strawpage is down for a while
  <br> https://45intherooms.atabook.org/<br>
