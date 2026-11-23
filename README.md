@@ -11,17 +11,17 @@
 <br><img src="https://poempuppy.neocities.org/resources/buttons/IMG_8431.GIF"> <img src="https://poempuppy.neocities.org/resources/buttons/tumblr_5170ee806fccf452f22e93f4d242eceb_c64d1c53_75.webp">
 
 <p align="center">
- $`{\color{#f5bfeb}\text{im 45 (name), angel or etc '}}`$
+<img src="https://i.postimg.cc/3JBB9t4H/black.gif"/> $`{\color{#f5bfeb}\text{im 45 (name), angel or etc '}}`$ <img src="https://i.postimg.cc/3JBB9t4H/black.gif"/>
 </center>
 <p align="center">
  $`{\color{#a17599}\text{feel free to c+h/hang around  '}}`$ <img src="https://poempuppy.neocities.org/resources/pixels/2yvms8.gif"/>
 </center>
  <p align="center">
-  friend requests/socials= 17-19<br>
-  feel free to shoot me a friend request if we met!<br>
+  friend requests/socials= 17-19 age range<br> 
+  you can anytime friend me if we met, ! Otherwise.. i really like to make friends, and i love talking about my interests and other stuff.   <br>
  </p>
 <p align="center">
-  i also do art trades
+  i also do art trades, please ask me anytime 
 </p>
 <p align="center"><br>
  ( For any important discussions, please ask for my Discord through whispering me if you see me, or on my Atabook if you need to!)<br>
