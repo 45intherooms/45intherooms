@@ -42,7 +42,7 @@ i really like to study about astronomy, marine-life, pandas, and other topics. i
  <p align="center">
 I'm not used to using slangs, I may make mistakes. Correct me please!<br>
 <p align="center">
- If I move away from you, I thought I'm bothering u or i saw a spot i liked. Nothing personal! (Doesn't count for cuddles/hiding).
+ If I move away from you, I thought I'm bothering u or i saw a spot i liked. Nothing personal! (Only applies if I'm alone, never during C+H)
   <br>
  <p align="center">
  I don't know what Forsaken is, sorry /srs<br>
