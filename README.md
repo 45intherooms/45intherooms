@@ -29,7 +29,9 @@
 
 i really like to study about astronomy, marine-life, pandas, and other topics. i like pastel colors, trinket and stamp collecting, tba..
 
-</details></p>
+i also like waapp, fnaf, and adventure time/fionna and cake.. i may know more
+
+</p></details>
 <p align="center">
  uhh strawpage is down for a while
  <br> https://45intherooms.atabook.org/<br>
