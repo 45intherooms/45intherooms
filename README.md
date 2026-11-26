@@ -12,13 +12,13 @@
 <br><img src="https://poempuppy.neocities.org/resources/buttons/IMG_8431.GIF"> <img src="https://poempuppy.neocities.org/resources/buttons/tumblr_5170ee806fccf452f22e93f4d242eceb_c64d1c53_75.webp">
 
 <p align="center">
-<img src="https://i.postimg.cc/3JBB9t4H/black.gif"/> $`{\color{#f5bfeb}\text{im 45 (name), angel or etc '}}`$ <img src="https://i.postimg.cc/3JBB9t4H/black.gif"/>
+<img src="https://i.postimg.cc/3JBB9t4H/black.gif"/> $`{\color{#f5bfeb}\text{im 45 (as in name), angel or etc '}}`$ <img src="https://i.postimg.cc/3JBB9t4H/black.gif"/>
 </center>
 <p align="center">
  $`{\color{#a17599}\text{feel free to c+h/hang around  '}}`$ <img src="https://poempuppy.neocities.org/resources/pixels/2yvms8.gif"/>
 </center>
  <p align="center">
-  I'm an ADULT !!!<br>
+$`{\color{#ff00d4}\text{I'm an ADULT !!!'}}`$<br>
   friending/mooting/socials= 17 - 18+ age range<br> 
   you can anytime friend me if we met, ! but otherwise i really like to make friends, and i love talking about my interests and other stuff.   <br>
  </p>
@@ -39,7 +39,7 @@ i also like waapp, fnaf, and adventure time/fionna and cake.. i may know more
  <p align="center">
  come chat + i sign back always !!
 
-<br>
+<br><br>
 <p align="center">PT/OTHER INFO !!!
   <br><br>
  <p align="center">
