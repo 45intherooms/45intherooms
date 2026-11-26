@@ -15,7 +15,7 @@
 <img src="https://i.postimg.cc/3JBB9t4H/black.gif"/> $`{\color{#f5bfeb}\text{im 45 (as in name), angel or etc '}}`$ <img src="https://i.postimg.cc/3JBB9t4H/black.gif"/>
 </center>
 <p align="center">
- $`{\color{#a17599}\text{feel free to c+h/hang around  '}}`$ <img src="https://poempuppy.neocities.org/resources/pixels/2yvms8.gif"/>
+<img src="https://poempuppy.neocities.org/resources/pixels/2yvms8.gif"/> $`{\color{#a17599}\text{feel free to c+h/hang around  '}}`$ <img src="https://poempuppy.neocities.org/resources/pixels/2yvms8.gif"/>
 </center>
  <p align="center">
 $`{\color{#ff00d4}\text{I'm an ADULT !!!'}}`$<br>
