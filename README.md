@@ -20,10 +20,10 @@
  <p align="center">
 $`{\color{#ff00d4}\text{I'm an ADULT !!!'}}`$<br><br>
   friending/mooting/socials= 17 - 18+ age range<br> 
-  you can anytime friend me if we met, ! but otherwise i really like to make friends, and i love talking about my interests and other stuff.   <br>
+ $`{\color{#f5bfeb}\text{you can anytime friend me if we met, ! but otherwise i really like to make friends, and i love talking about my interests and other stuff.'}}`$   <br>
  </p>
 <p align="center">
-  i also do art trades, please ask me anytime 
+$`{\color{#f5bfeb}\text{i also do art trades, please ask me anytime'}}`$
 </p>
 <details>
 <summary align="center">my interests</summary>
