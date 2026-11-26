@@ -18,7 +18,7 @@
  $`{\color{#a17599}\text{feel free to c+h/hang around  '}}`$ <img src="https://poempuppy.neocities.org/resources/pixels/2yvms8.gif"/>
 </center>
  <p align="center">
-  I'm an ADULT !!!
+  I'm an ADULT !!!<br>
   friending/mooting/socials= 17 - 18+ age range<br> 
   you can anytime friend me if we met, ! but otherwise i really like to make friends, and i love talking about my interests and other stuff.   <br>
  </p>
